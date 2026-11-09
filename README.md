@@ -145,3 +145,14 @@ A：系统是平台能力；片源版权需您合规自备或采购。
 
 Q：能改名换皮吗？
 A：支持白标：站点名/Logo/域名/主题资源可替换。
+
+源码✈️：@baohuishen
+<img width="864" height="1152" alt="image" src="https://github.com/user-attachments/assets/9aa372b0-1788-4a24-bac7-9958d9eeb648" />
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/2f85b5fe-0065-4e25-8cc0-b3c390864274" />
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/ca12ad93-9544-4bf0-9599-e7c6252f236c" />
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/0182ab92-c400-48cf-9f96-4967f4466c0d" />
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/4a1dac4e-1776-41f2-afc2-43b23e3aaa33" />
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/8f690867-f74e-4b02-850b-a03ca8b270a6" />
+
+
+
